@@ -21,4 +21,4 @@ We do not share, sell, or transfer any user data to third parties except as requ
 
 ## Contact
 
-If you have any questions, contact: [your-email@example.com]
+If you have any questions, contact: [frans.dressler@gmail.com]
